@@ -1,0 +1,2 @@
+# nkthathale
+nkthathle industries is a Manufacturing Company, . is like a one-stop shop which offers complete bricks, fabrication and construction  services. our clients come from industries such as material handling, heavy construction, railroad, agriculture, medical equipment, government contractors, and material handling equipment manufacturers. my we also Some of their services include Press Forming, Roll Bending, Certified Welding and Assembly, Complex Press Work, Mechanical Assembly, and CNC Machining,
